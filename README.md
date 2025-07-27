@@ -5,4 +5,4 @@
 </p>
 
 
-                    𝄞 [rentry](https://rentry.co/twoeight) ꕀ [strawpage](https://twice-rioromeo.straw.page) ꕀ [atabook](https://restartrefresh.atabook.org/) 𝄢
+                     𝄞 [rentry](https://rentry.co/twoeight) ꕀ [strawpage](https://twice-rioromeo.straw.page) ꕀ [atabook](https://restartrefresh.atabook.org/) 𝄢
