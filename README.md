@@ -1,9 +1,7 @@
 
 
                         𝄞 [rentry](https://rentry.co/destroythisgame) ꕀ [strawpage](https://pim--pimling.straw.page/) ꕀ [atabook](https://twoeight.atabook.org/) 𝄢                       
-<p align="center">
-  <img width="580" height="580" src=https://files.catbox.moe/8lced1.gif>
-</p>
+
 thje fivetwoeight polycule 🥹😳omg😳😳😳😳😳🥹😳🥹🥹🥹tohis is a momenty imn hisotry
 i dont have 528 folowers anymore but im keeping this here
 
